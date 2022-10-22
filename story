@@ -1,0 +1,1 @@
+yasmine is queen, aladin is poor and loves yasmine.
